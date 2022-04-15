@@ -14,10 +14,10 @@
 
 ### 📫 Reach me:
 
-- **QQ** : xxxxxxx
+- **QQ** : 1147552381
 - **WeChat** : xxxxxx
-- **Phone** : xxxxxxx
-- **E-mail** : xxxxxxxxx@qq.com
+- **Phone** : 15665700312
+- **E-mail** : 1147552381@qq.com
 
 ### 🏠 Blog：
 
