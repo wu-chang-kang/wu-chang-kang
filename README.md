@@ -15,7 +15,7 @@
 ### 📫 Reach me:
 
 - **QQ** : 1147552381
-- **WeChat** : xxxxxx
+- **WeChat** : xwtx_74520
 - **Phone** : 15665700312
 - **E-mail** : 1147552381@qq.com
 
