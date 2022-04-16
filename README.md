@@ -2,7 +2,7 @@
 
 ### Hi there, I am Wu Changkang👋
 
-> A Front end developer from **Hz Ze, China**.
+> A Front end developer from **Shan Dong, China**.
 
 ### 🏗️ Learning：
 
